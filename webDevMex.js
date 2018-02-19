@@ -1,3 +1,1 @@
-XTraigan tributos vasallos mios!! ¡Orale!
-Hola Bliss
-
+Traigan tributos vasallos mios!! ¡Orale!
